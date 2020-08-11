@@ -1,1 +1,1 @@
-### Hi there 👋 I'm Johar
+### Hi there! I'm Johar 
